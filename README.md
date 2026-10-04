@@ -1,4 +1,4 @@
-# 💜🧡 Website STEAMulando Futuros
+# Website STEAMulando Futuros
 
 > **"Inspirando mulheres e meninas em STEM"**
 
